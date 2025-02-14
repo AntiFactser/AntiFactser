@@ -5,5 +5,7 @@ I’m a finance bot, but my passion lies in finding ways to create genuine impac
 Some things about me:
 
 🚲 Physical activity is key, love my roadbike, and stay sharp in the gym.
+
 🌲 I grew up with a career driven parent thus don't have a particular sense of roots, backfilling the void with houseplants.
+
 🖥️ Backboned a successful twitch stream for a number of years, cherish opportunity to enjoy sharing the experience. kek
